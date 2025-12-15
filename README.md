@@ -19,7 +19,7 @@ Kho tổng hợp **link sách giáo khoa và tài liệu học tập** phục v�
 - Toán 6 – CTST - Tập 1 (PDF)  
 👉 [https://drive.google.com/file/d/YYYYYYYY/view](https://drive.google.com/file/d/18YNYS8cx8a83nCme_tGg1WZiTSZaALNE/view)
 - Toán 6 – CTST - Tập 2 (PDF)  
-👉 [[https://drive.google.com/file/d/YYYYYYYY/view](https://drive.google.com/file/d/18YNYS8cx8a83nCme_tGg1WZiTSZaALNE/view)](https://drive.google.com/file/d/1nWnlAR71PcUmLXGsbTJR9-rBuHUvEkVj/view)
+👉 [[[https://drive.google.com/file/d/YYYYYYYY/view](https://drive.google.com/file/d/18YNYS8cx8a83nCme_tGg1WZiTSZaALNE/view)]
 ---
 
 ## ℹ️ Ghi chú
